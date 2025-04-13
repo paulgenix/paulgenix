@@ -1,6 +1,6 @@
 
 
-
+# Paul Genix
 
 🌐 Get in Touch  
 📧 Email: paul.genix@gmail.com  
